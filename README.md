@@ -1,5 +1,4 @@
 ## Hellooo!👋
-# I am Ernesto III Dela Cruz
 
 ## *🎓 	$${\color{lightblue}I \space am \space about \space to\space GRADUATE! }$$ 💖
 ## *📆  Currently taking **job order** while waiting for the graduation march. 🧑🏻‍💻
